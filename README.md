@@ -2,8 +2,8 @@
 
 Mi nombre es Anthony Robalino estudiante de Economía en la Universidad San Francisco de Quito, actualmente estoy en 8 semestre de la carrera.
 
-Como sabes, puedes ver [mi CV](https://drive.google.com/file/d/1ntI0ZzG3RXG0l4djAM9UuVGqzIltC94l/view?usp=sharing) y si te interesa, me puede contactar, es un gusto y espero que te agrade mi páguina.
+Puedes ver mi [CV](https://drive.google.com/file/d/1ntI0ZzG3RXG0l4djAM9UuVGqzIltC94l/view?usp=sharing) y si te interesa, me puede contactar, es un gusto y espero que te agrade mi páguina.
 
-Soy una persona muy eficiente e ingeniosa en el área de números ya sea para proyecciones de inversión que la empresa puede tener o ver el sistema de costos que tiene esta empresa.
+Me considero una persona muy hábil con los programas, soy de rápido aprendizaje, ademas de ser muy curioso en todo lo que hago, cuando algo me interesa siempre busco llegar al objetivo. Además soy una persona eficiente e ingeniosa con los números, principalmente con el uso de Macros en Excel la cual puede realizar Forecasting con Monte Carlo y valuaciones de bancos y calculo de Patrimonio Tecnico y Nota Tecnica 5. Además tengo conocimientos sobre estimaciones de modelos económetricos con STATA y analisis de datos y balances .
 
 
