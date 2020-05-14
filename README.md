@@ -6,5 +6,4 @@ Como sabes, puedes ver [mi CV](https://drive.google.com/file/d/1ntI0ZzG3RXG0l4dj
 
 Soy una persona muy eficiente e ingeniosa en el área de números ya sea para proyecciones de inversión que la empresa puede tener o ver el sistema de costos que tiene esta empresa.
 
-I love :coffee:
 
